@@ -1,2 +1,2 @@
-# BetterBot---No-Version
+# BetterBot No-Version
 Удачи Shawnnn
